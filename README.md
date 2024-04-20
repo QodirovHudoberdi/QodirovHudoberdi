@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @QodirovHudoberdi
 - 👀 I’m interested in Java Programming Language
-- 🌱 I’m currently learning Create Documentation for about my code
+- 🌱 I’m currently learning Create Documentation for about my code Banking System
 - 💞️ I’m looking to collaborate online or offline employer abroad
 - 📫 How to reach me qodirovhudoberdi722@gmail.com and
 - 📫 Telegram  https://t.me/Hudoberdi_Qodirov
