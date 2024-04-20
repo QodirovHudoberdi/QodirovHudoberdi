@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Banking System
 - 📫 How to reach me qodirovhudoberdi722@gmail.com and
 - 📫 Telegram  https://t.me/Hudoberdi_Qodirov
-- 😄 Pronouns: approachable and polite boy😅🧐
+- 😄 Pronouns: Approachable and polite boy😅🧐
 - ⚡ Fun fact: I have  enough friend🙄
 
 <!---
