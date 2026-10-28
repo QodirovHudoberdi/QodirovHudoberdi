@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Create Documentation for about my code Banking System
 - 💞️ I’m looking to collaborate online or offline employer abroad
 - 📫 How to reach me qodirovhudoberdi722@gmail.com and
-- 📫 Telegram  https://t.me/Hudoberdi_Qodirov
+- 📫 Telegram  https://t.me/HudoberdiQodirov
 - 😄 Pronouns: Approachable and polite boy😅🧐
 - ⚡ Fun fact: I have  enough friend🙄
 
